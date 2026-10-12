@@ -1,0 +1,2 @@
+# premium-wood-bending-001-steam-bending-laminated-wood
+Tired of scribbling steam times on scraps of plywood and losing your laminated bending formulas? The Steam Bending &amp; Laminated Wood Shaping Studio brings order to your workshop chaos — a Notion template built for woodworkers who demand repeatable, precise results.  This studio template organizes every phase of your steam bending and lamination proj
